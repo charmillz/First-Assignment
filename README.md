@@ -29,6 +29,9 @@ Richard "Team" Supriano - suprr044@newschool.edu
 
 Amon Dario Appelt - appea617@newschool.edu
 
+Charlotte Miller - millc396@newschool.edu
+
 Chris Allick - allickc@newschool.edu
+
 
 
